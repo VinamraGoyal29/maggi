@@ -1,0 +1,1 @@
+Boil noodles, add magic masala, add red chilli powder, let the water soak up.
